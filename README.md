@@ -1,5 +1,5 @@
 
-![](https://i.imgur.com/AI1hFzA.gif)
+![](https://i.imgur.com/7kfjZya.gif)
 
 ### Ayyyy 👋
 
