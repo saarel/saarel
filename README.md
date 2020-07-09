@@ -1,4 +1,4 @@
-<a target="_blank" rel="noopener noreferrer" href="https://images.app.goo.gl/FJA4SFAtTTvdndpV9"</a>
+
 
 ### Ayyyy 👋
 
